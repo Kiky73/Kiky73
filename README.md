@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kiky73
-- 👀 I’m interested in ...forex trading 
+- 👀 I’m a forex trader.
 - 🌱 I’m currently learning ...web development 
 - 💞️ I’m looking to collaborate on ...both fields 
 - 📫 How to reach me ... WhatsApp 254700075588
